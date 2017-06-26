@@ -1,3 +1,3 @@
 # Monday!
 
-Today is Monday.
+Today is Monday. Yes, it is.
